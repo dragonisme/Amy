@@ -1,5 +1,5 @@
 # Amy
-Amy is goods gair.
+Amy is very goods gair.
 but he is love docutr!
 yes/no
                                                   zhanshenyulvasdf
